@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LisaThriveGlobal
+- 👀 I’m interested in making all the things.
+- 🌱 I’m an interested in behavior change, sociology, biology and psychology.
+- 💞️ I’m looking to collaborate on amazing projects with you.
+- 📫 You can reach me at lisa@thriveglobal.com
